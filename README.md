@@ -1,4 +1,6 @@
 # leaked-discord-token-generator
+https://discordu.sellix.io/ - tokens from my own custom gen
+
 itsvichyy scammed me $1k seling this trash gen, now im posting public bc idgaf
 
 https://easyupload.io/nfkmxj
